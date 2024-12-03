@@ -1,0 +1,1 @@
+# Technocite_school_management
